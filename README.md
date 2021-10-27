@@ -1,1 +1,1 @@
-# GAY-_1B_-IT103L_Activities
+# GAY_1B_IT103L_Activities
